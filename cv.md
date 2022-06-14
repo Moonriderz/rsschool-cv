@@ -4,6 +4,7 @@
 
 ## Contact Info
 
+- Discord nickname: Bionix(@Moonriderz)
 - Email: egorus2001@gmail.com
 - VK: https://vk.com/twist_o_praid
 
