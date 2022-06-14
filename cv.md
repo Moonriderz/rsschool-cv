@@ -11,6 +11,7 @@
 ## About me
 
 I can work in a team and although I have no experience in "IT", 
+I have enough perseverance to quickly understand new areas for myself. Stress-resistant
 
 ## Skills
 
